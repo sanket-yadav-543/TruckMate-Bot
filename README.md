@@ -126,8 +126,7 @@ Portfolio link - https://www.sujitportfolio.work/
 **Team Member2 - Sanket Yadav**  
 LinkedIn profile - https://www.linkedin.com/in/sanket-yadav-06387a294/
 
-
-**Team Member2 - Sujit Kumar Verma**  
+**Team Member3 - Sujit Kumar Verma**  
 LinkedIn profile - https://www.linkedin.com/in/sujit-kumar-ab85871b2/<br>
 
 
